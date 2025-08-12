@@ -8,3 +8,4 @@ Explore the warm, rich taste and comforting nature of Thakur Tea Premium: the ul
 Thakur Tea Premium is not just tea; it is an experience that celebrates tradition, quality, and pure flavor in every cup. 
 Carefully cultivated from premium handpicked leaves grown on lush, well-maintained plantations, this full-bodied blend delivers a smooth taste that tea lovers enjoy in the morning or during a peaceful afternoon break.
 Sourced from pristine, well-kept plantations, each leaf is carefully nurtured to extract the natural aroma and depth of flavor. 
+https://github.com/thakurteapremium/Thakur-Tea-Premium/blob/main/1722613013_WhatsApp%20Image%202024-08-02%20at%206.57.33%20PM%20(1).jpeg?raw=true
