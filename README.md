@@ -1,3 +1,4 @@
+Thakur Tea Packet](https://github.com/thakurteapremium/Thakur-Tea-Premium/blob/main/1722613013_WhatsApp%20Image%202024-08-02%20at%206.57.33%20PM%20(1).jpeg?raw=true)
 Thakur Tea Premium is not just any tea; it's an expression of tradition, quality, and pure flavor that tea enthusiasts appreciate in every cup.
 Handpicked from the finest leaves grown in lush, well-tended plantations, each leaf delivers a full-bodied taste that refreshes you
 when starting your day or when enjoying a peaceful afternoon break. Sourced from pristine, well-maintained plantations, 
@@ -7,5 +8,4 @@ Made for those seeking an unparalleled tea experience in their own home or while
 Explore the warm, rich taste and comforting nature of Thakur Tea Premium: the ultimate indulgence that makes your morning and afternoon rituals even more delightful. 
 Thakur Tea Premium is not just tea; it is an experience that celebrates tradition, quality, and pure flavor in every cup. 
 Carefully cultivated from premium handpicked leaves grown on lush, well-maintained plantations, this full-bodied blend delivers a smooth taste that tea lovers enjoy in the morning or during a peaceful afternoon break.
-Sourced from pristine, well-kept plantations, each leaf is carefully nurtured to extract the natural aroma and depth of flavor. 
-https://github.com/thakurteapremium/Thakur-Tea-Premium/blob/main/1722613013_WhatsApp%20Image%202024-08-02%20at%206.57.33%20PM%20(1).jpeg?raw=true
+Sourced from pristine, well-kept plantations, each leaf is carefully nurtured to extract the natural aroma and depth of flavor.
